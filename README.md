@@ -1,0 +1,1 @@
+# MRR-and-PLR-Reselling-Rights
